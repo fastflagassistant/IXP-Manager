@@ -29,3 +29,6 @@ Tutorial on how to download if u didnt download the py:
 
 
 8, have fun
+
+discord
+https://discord.gg/qYkD6eTc
